@@ -11,3 +11,13 @@ Instagram has advertising.
 
 WordPress.com offers paid hosting. 
 
+Reddit has advertising. 
+
+Facebook has advertising. 
+
+Snapchat has advertising. 
+
+There must be a better way. 
+
+Netflix does not have advertising. 
+
